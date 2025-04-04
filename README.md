@@ -1,2 +1,2 @@
 # BUMINGCUAN
-Semua tentang BUMING bersama [BUMING](https://www.bumitoto.my)
+Semua tentang BUMING bersama [BUMING](https://bumitoto.my)
